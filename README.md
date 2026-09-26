@@ -6,7 +6,7 @@
   <img src="https://files.catbox.moe/29ba9n.png" style="border: none; display: block; margin: 0;" height="250"> </p>
   <p align="center"> ${ \color{#556E95} ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉       {}}$
   <p align="center"> ${ \color{#A19CBF} ୨୧\space ꒰\space scottie \space ; \space 17 \space꒱ \space୨୧       {}}$
-  <p align="center"> ${ \color{#556E95}   𓉸ྀི she/he \space \space lesbian \space \space ponytown bum 𓉸ྀི ୧       {}}$
+  <p align="center"> ${ \color{#556E95}   𓉸ྀི she/he \space \space lesbian \space \space ponytown \space bum 𓉸ྀི ୧       {}}$
   <p align="center"> ${ \color{#A19CBF}    usually \space alone \space or \space with \space friends \space, \space I \space don't \space \space like \space talking \space to \space people \space rlly  ♡ˊˎ-       {}}$
   <p align="center"> ${ \color{#556E95} ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍       {}}$
 <br>
